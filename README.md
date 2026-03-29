@@ -6,6 +6,7 @@ Life moves pretty fast. Make sure to slow down... or don't. We don't care. /refe
 ---
 
 **Identity:** I'm 19, not 17. Goes by she/her, yes. I can be your mother nor your therapist :3
+
 **Availability:** I'm open to RP as you wish!! (Please don't be shy to interact me...) I can also yap over the most random sht ever. Main server? Occasionally in Safe Server 1 but preferably Safe Indonesia
 
 ### Quick Summary about myself
