@@ -15,3 +15,6 @@ Hey, I'm kind ^^ Don't be shy (again) to interact because I don't bite (not anym
 *   **Boundaries:** I may say I can be your mother but again, those who's below 10 please dni for I don't want either you nor me in problem... Two, 10 years old and below seems a tad too young to play Pony Town! (Even 10-12 is still considerably young but it seems in Safe Indonesia, that's unfortunately common)
 
 ---
+
+### Fictionkin
+Pierrot (TFC), Dr Elias Shaw (SCP), Deimos (MadCom)
