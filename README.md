@@ -3,6 +3,8 @@ Hi hi, I'm not good with Git's formatting but I will try!
 # Charlie
 Life moves pretty fast. Make sure to slow down... or don't. We don't care. /reference from TT
 
+https://msrubedo.atabook.org/
+
 ---
 
 **Identity:** I'm 19, not 17. Goes by she/her, yes. I can be your mother nor your therapist :3
